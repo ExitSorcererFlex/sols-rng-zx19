@@ -1,4 +1,4 @@
-
+ultimate sol's rng Script offers the most advanced sol's rng Script, with one-hit kill and no clip. Perfect for dominating any match.
 
 
 
